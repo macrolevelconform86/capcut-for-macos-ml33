@@ -1,4 +1,4 @@
-# 
+# Enhance CapCut for macOS with vip CapCut for macOS Overlay | sound-design + video-stabilization, the #1 overlay. Includes sound-design and video-stabilization for a smoother and
 
 
 
